@@ -28,3 +28,6 @@
 <p align="center">$${\color{#EFBF04}\huge \text {I usually to make sarcastic, dumb or suggestive jokes, DNI if uncomfortable.}}$$
 
 __ppst, I follow back ۶ৎ__
+
+ <p align="center"><img width="498" height="498" alt="17881246459848448298242656451656" src="https://github.com/user-attachments/assets/6939dc2c-cc48-484e-8e92-21aa9fbd8507" />
+
