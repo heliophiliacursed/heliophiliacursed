@@ -1,16 +1,30 @@
-## Hi there 👋
 
-<!--
-**heliophiliacursed/heliophiliacursed** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+# <p align="center"><img width="735" height="310" alt="3c0a479e-d954-4598-8f01-96a5a0ada60d" src="https://github.com/user-attachments/assets/82f693ed-bc03-4bc9-a789-d36bf6bcf29d" />
 
-Here are some ideas to get you started:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+
+
+
+<p align="center">$${\color{#8B0000}\huge \text {ɪɴᴛɪ ʟʟᴜQꜱɪᴍᴜɴ!}}$$
+
+## <p align="center">Boundaries
+
+<p align="center">$${\color{#EFBF04}\huge \text {25+ dni.}}$$
+<p align="center">$${\color{#EFBF04}I  \ am \ a \ minor. \ I'm \ uncomfortable \ with \ talking \ to \ people \ online \ older \ than \ at \ least \ 25}$$
+
+<p align="center">$${\color{#EFBF04}If \ you \ can't \ accept \ my \ boundaries, \ I \ will \ block \ you. \ I \ don't \ block \ permanently.}$$
+
+
+<p align="center"><img width="480" height="224" alt="17881231432678706398656724194179" src="https://github.com/user-attachments/assets/a6f3a469-2b35-4f9b-87a8-9fc9f8924c8e" /> 
+
+### <p align="center">𓎢𓎠𓎟𓎠𓎡 About Me
+
+
+<p align="center">$${\color{#8B0000}\huge \text {𝑰 𝒕𝒆𝒏𝒅 𝒕𝒐 𝒉𝒂𝒗𝒆 𝒗𝒆𝒓𝒚 𝒒𝒖𝒊𝒄𝒌 𝒎𝒐𝒐𝒅 𝒔𝒘𝒊𝒏𝒈𝒔, 𝒔𝒐 𝑰𝑵𝑻𝑾𝑪}}$$
+
+<p align="center">$${\color{#202A44}\huge \text {c*h, kisses, boops are fine and even encouraged, if I don't respond it is fine to sit}}$$ 
+  <p align="center">$${\color{#202A44}\huge \text {next to me or around my skin, I am offtab/AFK a lot.}}$$
+
+<p align="center">$${\color{#EFBF04}\huge \text {I usually to make sarcastic, dumb or suggestive jokes, DNI if uncomfortable.}}$$
+
+__ppst, I follow back ۶ৎ__
