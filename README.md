@@ -29,12 +29,15 @@
 
 <p align="center">$${\color{#8B0000}\huge \text {𝑰 𝒕𝒆𝒏𝒅 𝒕𝒐 𝒉𝒂𝒗𝒆 𝒗𝒆𝒓𝒚 𝒒𝒖𝒊𝒄𝒌 𝒎𝒐𝒐𝒅 𝒔𝒘𝒊𝒏𝒈𝒔, 𝒔𝒐 𝑰𝑵𝑻𝑾𝑪}}$$
 
-<p align="center">$${\color{#202A44}\huge \text {c*h, kisses, boops are fine and even encouraged, if I don't respond it is fine to sit}}$$ 
+<p align="center">$${\color{#202A44}\huge \text {c*h, kisses, boops are fine and even encouraged,}}$$
+  <p align="center">$${\color{#202A44}\huge \text {if I don't respond it is fine to sit}}$$ 
   <p align="center">$${\color{#202A44}\huge \text {next to me or around my skin, I am offtab/AFK a lot.}}$$
 
-<p align="center">$${\color{#EFBF04}\huge \text {I usually to make sarcastic, dumb or suggestive jokes, DNI if uncomfortable.}}$$
+<p align="center">$${\color{#EFBF04}\huge \text {I usually to make}}$$
+<p align="center">$${\color{#EFBF04}\huge \text{sarcastic, dumb or suggestive jokes,}}$$
+ <p  align="center">$${\color{#EFBF04}\huge \text {DNI if uncomfortable.}}$$
 
-<p align="center"><img width="150" height="20" alt="17881261482578706419523091900908" src="https://github.com/user-attachments/assets/595c0dd9-f5b5-4931-b38a-61f4775491e1" />
+<p align="center"><img width="150" height="20" alt=7881261482578706419523091900908" src="https://github.com/user-attachments/assets/595c0dd9-f5b5-4931-b38a-61f4775491e1" />
 
 
 
