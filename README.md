@@ -39,8 +39,10 @@
 
 
 ### 𓎢𓎠𓎟𓎠𓎡
-__psst, I follow back ۶ৎ__
+__psst, I follow back ۶ৎ(if requested)__
 
+ 
+<p align="center"><a href="https://hits.sh/github.com/heliophiliacursed/hits/"><img alt="Hits" src="https://hits.sh/github.com/heliophiliacursed/hits.svg?label=%E2%99%A1&color=bcad79&labelColor=7f4426"/></a>
 
 
 
