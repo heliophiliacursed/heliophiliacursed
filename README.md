@@ -42,6 +42,20 @@
 
 
 ### 𓎢𓎠𓎟𓎠𓎡
+
+[ata](https://doyoulikeyourtacoshardorsoft.atabook.org/?page=1)
+
+
+[main strawpage](https://youbettersignthis.straw.page/)
+
+
+[2nd strawpage](https://sunkissedlight.straw.page/)
+
+
+[guns.lol](https://guns.lol/wetcigarettes)
+
+
+
 __psst, I follow back ۶ৎ(if requested)__
 
  
