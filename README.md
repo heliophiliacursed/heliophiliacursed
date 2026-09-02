@@ -46,10 +46,10 @@
 [ata](https://doyoulikeyourtacoshardorsoft.atabook.org/?page=1)
 
 
-[main strawpage](https://youbettersignthis.straw.page/)
+[main strawpage](https://sunkissedlight.straw.page)
 
 
-[2nd strawpage](https://sunkissedlight.straw.page/)
+[2nd strawpage](https://youbettersignthis.straw.page/)
 
 
 [guns.lol](https://guns.lol/wetcigarettes)
