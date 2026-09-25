@@ -19,6 +19,9 @@ $$\color{#c8d3e5} \huge \text { 𝓢𝓽𝓮𝓹𝓱 / 𝓐𝓻𝓲 / 𝓟𝓸�
   [𝓖𝓾𝓷𝓼.𝓵𝓸𝓵](https://guns.lol/wetcigarettes)
 
   [𝓢𝓽𝓻𝓪𝔀𝓹𝓪𝓰𝓮](poppybubs.straw.page)
-  
+</details>  
+
+
+WIP!! 
 
 <p align="center"><img width="400" height="111" alt="17903270483291826166929075582649" src="https://github.com/user-attachments/assets/68ba58b9-cc1f-4404-b09d-c0c594116f72" />
