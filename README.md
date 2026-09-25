@@ -22,11 +22,10 @@ $$\color{#c8d3e5} \huge \text { 𝓢𝓽𝓮𝓹𝓱 / 𝓐𝓻𝓲 / 𝓟𝓸�
 </details>  
 
 
-<details><summary><p align="center"><p align="center"><img width="20" height="20" alt="17903272949333465237381036265171" src="https://github.com/user-attachments/assets/cbe90a36-d4f8-4be0-9a5d-f5500d9e4037" />
+<details><summary><p align="center"><p align="center"><img width="20" height="20" alt="17903272949333465237381036265171" src="https://github.com/user-attachments/assets/cbe90a36-d4f8-4be0-9a5d-f5500d9e4037" /></summary>
  
-<p align="center"> <b>wip.</b>
-                                
-  </summary></details>
+**Int freely** , $$\color{#b0e0e6}{any \space  LEGAL \space  ship}$$
+                                </details>
 
 
 <p align="center"><img width="400" height="111" alt="17903270483291826166929075582649" src="https://github.com/user-attachments/assets/68ba58b9-cc1f-4404-b09d-c0c594116f72" />
