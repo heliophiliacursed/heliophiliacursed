@@ -1,6 +1,6 @@
 <p align="center"><img width="400" height="111" alt="17903270320831467588884955861884" src="https://github.com/user-attachments/assets/70f210c9-d038-4bcb-a91e-901e2227ec70" />
 
-
+<p align="center"><a href="https://hits.sh/github.com/heliopheliacursed/hits/"><img alt="Hits" src="https://hits.sh/github.com/heliopheliacursed/hits.svg?style=plastic&label=%E2%99%A1&color=897b9a&labelColor=aaadca"/></a>
 
 <img width="736" height="414" alt="Poppy banner rentry thing__" src="https://github.com/user-attachments/assets/ce2b801a-3e5e-47c4-af8d-22b8b5026cc4" />
 
