@@ -14,7 +14,7 @@ $$\color{#c8d3e5} \huge \text { 𝓢𝓽𝓮𝓹𝓱 / 𝓐𝓻𝓲 / 𝓟𝓸�
  </summary>
 
 
-  [𝓡𝓮𝓷𝓽𝓻𝔂](https://rentry.co/piercetthevic)
+  [𝓡𝓮𝓷𝓽𝓻𝔂](https://rentry.co/bubblylights)
 
   [𝓖𝓾𝓷𝓼.𝓵𝓸𝓵](https://guns.lol/wetcigarettes)
 
